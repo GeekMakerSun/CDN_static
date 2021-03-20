@@ -1,1 +1,0 @@
-# 13aq_blog_pic
